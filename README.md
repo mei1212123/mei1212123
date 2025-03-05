@@ -5,6 +5,8 @@ I ran up some numbers, now I got what you all need
 
 I personally think player responsibility is very important
 
+I am a very responsible destiny player 
+
 responsible DMA
 
 
