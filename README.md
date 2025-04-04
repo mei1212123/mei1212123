@@ -1,9 +1,6 @@
-I'ma take all my baldies to Giorgio Baldi's, throw my dick a party
-Your dress code upscale
-Used to shop at ALDI's
-I ran up some numbers, now I got what you all need
+https://guns.lol/mei1212123
 
-I personally think player responsibility is very important
+I think player responsibility is critical to this game 
 
 I am a very responsible destiny player 
 
